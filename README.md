@@ -1,0 +1,3 @@
+# mikuschool 
+
+school boring 😢
